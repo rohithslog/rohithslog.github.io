@@ -1,2 +1,0 @@
-# rohithslog.github.io
-
